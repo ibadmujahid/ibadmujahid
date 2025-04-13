@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ibadmujahid!
 - 👀 I’m interested in Development.
-- 🌱 I’m currently pursuing a Diploma From Aptech Learning Center.
+- 🌱 I’m currently serving industries with my development skills.
 - 💞️ I’m open to collaborate with professionals and businesses.
 - 📫 You can reach me with email ibad2112d@aptechgdn.net 
 
